@@ -1,6 +1,7 @@
 ## `--SZLAKI-ROZWARTE-->`  
   
-- [x]  leśne łazęgi, miejskie włóczęgi, szlaki przetarte, pięty otarte, dętki łatane  
+leśne łazęgi, miejskie włóczęgi, szlaki przetarte, pięty otarte, dętki łatane. 
+merci beaucoup  
   
   
 ### 26-02-2022 Reksio Doom Patrol🐕‍🦺  
